@@ -1,4 +1,4 @@
-## Hi there 👋
+## Im lazy ill put stuff here later bye
 
 <!--
 **Sw0rdF1ght0nTheH31ghtz/Sw0rdF1ght0nTheH31ghtz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
