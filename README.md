@@ -34,7 +34,7 @@
   . . . 𝘢𝘴𝘩𝘦𝘴 , 𝘢𝘴𝘩𝘦𝘴 , 𝘵𝘩𝘦𝘺 𝘢𝘭𝘭 𝘧𝘢𝘭𝘭 𝙙𝙤𝙬𝙣
 
 
-  ![a46aa326-72c5-4ff6-bf87-2acb09bc6a9c](https://github.com/user-attachments/assets/e2438fb2-2e66-486b-bfb8-51190d2402e8)
+  
 
 
   ![tumblr_8a46e75b3c959581e6d4bf2687c8afea_6b74ac34_2048](https://github.com/user-attachments/assets/d25cdc76-fa7c-4ff7-aae7-3c8b30853763)
