@@ -9,7 +9,7 @@
 
 
 
-[strawpage](https://point-of-no-respawn.straw.page)
+[*strawpage*](https://point-of-no-respawn.straw.page)    .     [*pronouns.cc*](https://pronouns.cc/@ring.of.fire)
 
 
 
