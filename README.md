@@ -5,7 +5,8 @@
 
 ### ꒰  𝘎𝘦𝘯𝘦𝘴𝘪𝘴 , 𝘎𝘦𝘯𝘦 , 𝘙𝘪𝘯𝘨  ꒱   ෧ ︶  𝘪𝘯𝘧𝘱 - 𝘵
 
-![Untitled185_20250701165951](https://github.com/user-attachments/assets/1dece8c8-d4e6-4224-8fa7-f5de973ad38d)!
+![Untitled185_20250701170408](https://github.com/user-attachments/assets/99225c50-22e8-4bd0-9fad-1bf909d2580b)
+
 
 
 
