@@ -3,7 +3,7 @@
 >![PSX_20250701_153148](https://github.com/user-attachments/assets/06069d4e-3359-46f3-b7a0-742a63a8e2f6)
 >[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bold&weight=100&duration=2000&color=C4BBFE&vCenter=true&width=500&height=100&lines=%22+.+.+And+when+I+find+that+computer%2C;+.+.+.+I+am+going+to+rip+out+.+.+;+.+.+all+of+its+wires%22)](https://git.io/typing-svg)   
 
-   >꒰  Genesis , Gene , Rease  ꒱ㅤㅤ෧ㅤ ︶  𝘪𝘯𝘧𝘱 - **𝘵** ㅤㅤㅤ␥ ***WHOOSH!!*** ␥
+   >꒰  Genesis , Gene , Rease  ꒱ㅤㅤ෧ㅤ ︶  𝘪𝘯𝘧𝘱 - **𝘵** ❱❱❱ iwecㅤㅤㅤ␥ ***WHOOSH!!*** ␥
 >![PSX_20250701_153148](https://github.com/user-attachments/assets/db1e6e1e-0e90-4337-bed3-a7e9b79df06a)
 
 
