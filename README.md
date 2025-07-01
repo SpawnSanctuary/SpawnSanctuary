@@ -5,11 +5,4 @@
 
 ꒰  𝘎𝘦𝘯𝘦𝘴𝘪𝘴 , 𝘎𝘦𝘯𝘦 , 𝘙𝘪𝘯𝘨  ꒱   ෧ ︶  𝘪𝘯𝘧𝘱 - 𝘵
 
- npm run build:dev 
- npm i typewriter-effect
- import Typewriter from 'typewriter-effect/dist/core';
 
-new Typewriter('#typewriter', {
-  strings: ['Hello', 'World'],
-  autoStart: true,
-}); hey
