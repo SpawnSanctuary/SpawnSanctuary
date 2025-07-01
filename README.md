@@ -6,6 +6,7 @@
    ꒰  𝘎𝘦𝘯𝘦𝘴𝘪𝘴 , 𝘎𝘦𝘯𝘦 , 𝘙𝘪𝘯𝘨  ꒱   ෧ ︶  𝘪𝘯𝘧𝘱 - **𝘵**
 
 ![PSX_20250630_072129(1)](https://github.com/user-attachments/assets/f4659572-74fd-448d-a0b5-3c856994af02)
+![PSX_20250701_153148](https://github.com/user-attachments/assets/ccf477b1-0b91-41fd-9fef-11d2026d22fc)
 
 
 
