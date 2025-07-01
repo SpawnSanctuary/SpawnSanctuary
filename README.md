@@ -5,11 +5,14 @@
 
    ꒰  𝘎𝘦𝘯𝘦𝘴𝘪𝘴 , 𝘎𝘦𝘯𝘦 , 𝘙𝘪𝘯𝘨  ꒱   ෧ ︶  𝘪𝘯𝘧𝘱 - **𝘵**
 
-  
+![PSX_20250630_072129(1)](https://github.com/user-attachments/assets/f4659572-74fd-448d-a0b5-3c856994af02)
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[*strawpage*](https://point-of-no-respawn.straw.page) ㅤㅤㅤㅤ . ㅤㅤㅤㅤ[*pronouns.cc*](https://pronouns.cc/@ring.of.fire) ㅤㅤㅤㅤ . ㅤㅤㅤㅤ[*pronouns.page*](https://en.pronouns.page/@Exorr) ㅤㅤㅤㅤ . ㅤㅤ[*roblox*](https://www.roblox.com/users/4612208625/profile)ㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[*strawpage*](https://point-of-no-respawn.straw.page) ㅤㅤㅤㅤ . ㅤㅤㅤㅤ[*pronouns.cc*](https://pronouns.cc/@ring.of.fire) ㅤㅤㅤㅤ . ㅤㅤㅤㅤ[*pronouns.page*](https://en.pronouns.page/@Exorr) ㅤㅤㅤㅤ . ㅤㅤ[*roblox*](https://www.roblox.com/users/4612208625/profile)ㅤㅤ
+
+
 
 
 
