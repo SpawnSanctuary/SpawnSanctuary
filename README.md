@@ -1,27 +1,9 @@
->![PSX_20250701_153148](https://github.com/user-attachments/assets/02c061d5-8081-4b49-9877-998a379b8d0d)
->![PSX_20250630_190219](https://github.com/user-attachments/assets/bfeff2a7-2018-4974-ba5d-1be7fd536a00)
->![PSX_20250701_153148](https://github.com/user-attachments/assets/06069d4e-3359-46f3-b7a0-742a63a8e2f6)
->[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bold&weight=100&duration=2000&color=C4BBFE&vCenter=true&width=500&height=100&lines=%22+.+.+And+when+I+find+that+computer%2C;+.+.+.+I+am+going+to+rip+out+.+.+;+.+.+all+of+its+wires%22)](https://git.io/typing-svg)   
-
-   >꒰  Genesis , Gene , Rease  ꒱ㅤㅤ෧ㅤ ︶  𝘪𝘯𝘧𝘱 - **𝘵**   ៚   iwecㅤㅤㅤ␥ ***WHOOSH!!*** ␥
->![PSX_20250701_153148](https://github.com/user-attachments/assets/db1e6e1e-0e90-4337-bed3-a7e9b79df06a)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=&pause=1000&color=4F1A14&center=true&vCenter=true&width=500&lines=%22%F0%9D%95%BF%F0%9D%96%8D%F0%9D%96%8A%F0%9D%96%93+%F0%9D%96%8E%F0%9D%96%93+%F0%9D%96%86+%F0%9D%96%8B%F0%9D%96%94%F0%9D%96%94%F0%9D%96%99%F0%9D%96%93%F0%9D%96%94%F0%9D%96%99%F0%9D%96%8A%2C+%F0%9D%96%8D%F0%9D%96%8A+%F0%9D%96%92%F0%9D%96%8A%F0%9D%96%93%F0%9D%96%99%F0%9D%96%8E%F0%9D%96%94%F0%9D%96%93%F0%9D%96%8A%F0%9D%96%98+%F0%9D%96%99%F0%9D%96%8D%F0%9D%96%8A+%F0%9D%96%8A%F0%9D%96%9B%F0%9D%96%8E%F0%9D%96%91+%D5%B5%F0%9D%96%9D%D5%B5%F0%9D%96%9D%D5%B5%F0%9D%96%9D%D5%B5.%22)](https://git.io/typing-svg)
 
 
 
 
-
-
-
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[*strawpage*](https://2timesthecharm.straw.page/) ㅤㅤㅤㅤ . ㅤㅤㅤㅤ[*pronouns.cc*](https://pronouns.cc/@ring.of.fire) ㅤㅤㅤㅤ . ㅤㅤㅤㅤ[*pronouns.page*](https://en.pronouns.page/@Exorr) ㅤㅤㅤㅤ . ㅤㅤ[*carrd.co*](https://sk8ingrease.carrd.co/)ㅤㅤ
-![tumblr_pw0fjpXnLJ1wp4f5fo2_250](https://github.com/user-attachments/assets/05213396-1f81-4610-9307-709c2951368b)
-
-
-
-
-
-
+rmking this ok
 
 
 
