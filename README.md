@@ -10,5 +10,3 @@
 <img width="736" height="414" alt="Untitled247_20250720082102" src="https://github.com/user-attachments/assets/0b59bcee-1314-4f12-9e24-8e481dac7adb" />
 
 <img width="736" height="414" alt="Untitled247_20250720084641" src="https://github.com/user-attachments/assets/c7abe414-e22a-4537-b9ef-d7e7ae394dae" />
-
-
