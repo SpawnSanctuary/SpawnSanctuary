@@ -29,5 +29,3 @@ view socials 4 more info,,*
  <p align="center">
   <img src="https://files.catbox.moe/l9p1ku.png" />
 
-  <p align="center">
-  <img src="https://files.catbox.moe/hcn7t7.png" />
