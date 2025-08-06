@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://files.catbox.moe/iwz4ln.png" />
 <p align="center">
-  <img src="https://files.catbox.moe/tb8y4o.png" />
+  <img src="https://files.catbox.moe/wnv3uf.png />
 <p align="center">
 :"It's a piece of cake to bake a pretty cake!"
 <p align="center"
