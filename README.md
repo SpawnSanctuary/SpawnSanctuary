@@ -11,8 +11,7 @@ feel frre 2 cuddle and hug, im not on ponytown often,
 view socials 4 more info,,*
 
 
-<p align="center">
-  <img src="https://files.catbox.moe/l9p1ku.png" />
+
   
 <p align="center"
   
@@ -26,3 +25,6 @@ view socials 4 more info,,*
   <p align="center"
 
  [*꒰  guns.lol ꒱*](https://guns.lol/casketkids)
+
+ <p align="center">
+  <img src="https://files.catbox.moe/l9p1ku.png" />
