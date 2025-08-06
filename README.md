@@ -13,3 +13,12 @@ view socials 4 more info,,*
 
 <p align="center">
   <img src="https://files.catbox.moe/l9p1ku.png" />
+  
+<p align="center"
+  
+
+ [*꒰ rentry ꒱*](https://rentry.co/astr0k3n)
+  <p align="center"
+
+
+ [*꒰  prns.cc ꒱*](https://pronouns.cc/@ring.of.fire)
