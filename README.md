@@ -1,5 +1,15 @@
+<p align="center">
+  <img src="https://files.catbox.moe/iwz4ln.png" />
+<p align="center">
+  <img src="https://files.catbox.moe/tb8y4o.png" />
+<p align="center">
+:"It's a piece of cake to bake a pretty cake!"
+<p align="center"
+ 
+*Poison/dart, it:its   int with extreme caution, 
+feel frre 2 cuddle and hug, im not on ponytown often,
+view socials 4 more info,,*
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=&pause=1000&color=F5413F&vCenter=true&width=600&lines=%22%F0%9D%99%8F%F0%9D%99%9D%F0%9D%99%9A%F0%9D%99%A3+%F0%9D%99%9E%F0%9D%99%A3+%F0%9D%99%96+%F0%9D%99%9B%F0%9D%99%A4%F0%9D%99%A4%F0%9D%99%A9%F0%9D%99%A3%F0%9D%99%A4%F0%9D%99%A9%F0%9D%99%9A%2C+%F0%9D%99%9D%F0%9D%99%9A+%F0%9D%99%A2%F0%9D%99%9A%F0%9D%99%A3%F0%9D%99%A9%F0%9D%99%9E%F0%9D%99%A4%F0%9D%99%A3%F0%9D%99%9A%F0%9D%99%A8+%F0%9D%99%A9%F0%9D%99%9D%F0%9D%99%9A+%F0%9D%99%9A%F0%9D%99%AB%F0%9D%99%9E%F0%9D%99%A1+1%F0%9D%99%AD1%F0%9D%99%AD1%F0%9D%99%AD1.%22)](https://git.io/typing-svg)<img width="736" height="414" alt="Untitled247_20250720080056" src="https://github.com/user-attachments/assets/49734a33-4fab-46d3-b387-9b685bc92f4f" />
-<img width="736" height="414" alt="Untitled247_20250720081626" src="https://github.com/user-attachments/assets/8d02a092-6cbf-41b0-a830-16056eb271ce" />
-<img width="736" height="414" alt="Untitled247_20250720112239" src="https://github.com/user-attachments/assets/411a7fa9-3c59-4332-b797-f4081cfcdc00" />
-<img width="736" height="414" alt="Untitled247_20250720084641" src="https://github.com/user-attachments/assets/39529a24-180f-4e77-aaed-b6913ce25dc7" />
+
+<p align="center">
+  <img src="https://files.catbox.moe/l9p1ku.png" />
