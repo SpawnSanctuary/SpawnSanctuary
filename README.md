@@ -22,3 +22,7 @@ view socials 4 more info,,*
 
 
  [*꒰  prns.cc ꒱*](https://pronouns.cc/@ring.of.fire)
+
+  <p align="center"
+
+ [*꒰  guns.lol ꒱*](https://guns.lol/casketkids)
