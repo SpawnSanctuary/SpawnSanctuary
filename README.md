@@ -7,7 +7,7 @@
 <p align="center"
  
 *Poison/dart, it:its   int with extreme caution, 
-feel frre 2 cuddle and hug, im not on ponytown often,
+feel free 2 cuddle and hug, im not on ponytown often,
 view socials 4 more info,,*
 
 
@@ -16,7 +16,7 @@ view socials 4 more info,,*
 <p align="center"
   
 
- [*꒰ rentry ꒱*](https://rentry.co/astr0k3n)
+ [*꒰ rentry ꒱*](https://rentry.co/THEHELLHOUNDD)
   <p align="center"
 
 
